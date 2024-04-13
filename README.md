@@ -1,1 +1,1 @@
-All Rights Reserved To thescienceofcoding aka Mohtad Abdullah Qutab
+All Rights Reserved To thescienceofcoding also known as Mohtad Abdullah Qutab
