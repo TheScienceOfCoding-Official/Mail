@@ -1,0 +1,1 @@
+All Rights Reserved To thescienceofcoding aka Mohtad Abdullah Qutab
